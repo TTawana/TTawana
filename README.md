@@ -1,5 +1,5 @@
 <h1 align="center">Hi 👋, I'm Tawana!</h1>
-<h3 align="center">I am aspiring data analyst looking to land my first role.</h3>
+<h3 align="center">I am aspiring data analyst looking to land a data role!</h3>
 
 - 😄 Pronouns: She/Her
 
