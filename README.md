@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **ttmachiridza@gmail.com**
 
-- ⚡ Fun fact **I love to read create pottery :)**
+- ⚡ Fun fact **I love to read and create pottery :)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
